@@ -7,6 +7,340 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 14:42
+---
+
+## VahidOOnLine — post 240458
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240458_1778929975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا گفته است انتظار دارد تنگه هرمز «حداکثر تا مقطعی در تابستان» بازگشایی شود.
+
+رایت همچنین گفت اگر ایران به «گروگان گرفتن اقتصاد جهان» ادامه دهد، ارتش آمریکا می‌تواند برای بازگشایی تنگه هرمز مداخله کند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240457
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240457_1778929976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در برنامه‌های شامگاه گذشته تلویزیون جمهوری اسلامی، بخش‌هایی با محور آموزش کار با سلاح پخش شد.
+
+در این برنامه‌ها، مجریان یا کارشناسان حاضر در استودیو، شیوه گرفتن و استفاده از سلاح را توضیح دادند. پخش چنین محتوایی از تلویزیون حکومتی در شرایطی صورت می‌گیرد که رسانه‌های وابسته به جمهوری اسلامی در هفته‌های اخیر بر ادبیات نظامی، آمادگی دفاعی و بسیج حامیان خود تاکید بیشتری داشته‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240456
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240456_1778929976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+«دریک»، رپر، خواننده و بازیگر کانادایی، در یکی از قطعه‌های تازه خود با نام «Don’t Worry» به دختری ایرانی اشاره کرده که فارسی حرف می‌زند. این قطعه در آلبوم تازه او منتشر شده است. در متن ترانه نیز بندی آمده که در آن زن مورد اشاره خود را ایرانی معرفی می‌کند که فارسی حرف می‌‌زند.
+
+دریک با نام کامل «آبری دریک گراهام» زاده تورنتو است و پیش از ورود جدی به موسیقی، با بازی در مجموعه تلویزیونی نوجوانانه «دگراسی، نسل بعدی» شناخته شد. او سپس به یکی از چهره‌های اصلی موسیقی هیپ‌هاپ و پاپ معاصر تبدیل شد و سبک ترکیبی او میان رپ‌خوانی و خوانندگی، جایگاه گسترده‌ای در بازار جهانی موسیقی برایش به همراه آورد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240455
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240455_1778929978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان نیوزیلند روز شنبه ۲۶ اردیبهشت‌ماه در حمایت از شاهزاده رضا پهلوی و علیه قطع اینترنت و اعدام‌های جمهوری اسلامی در اوکلند تجمع برگزار کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240454
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240454_1778929981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی کل نیروی دفاع بحرین، روز شنبه با انتشار بیانیه‌ای اعلام کرد تمامی یگان‌ها و تسلیحات این کشور در بالاترین سطح آمادگی و آماده‌باش دفاعی قرار دارند.
+در این بیانیه آمده است، فرماندهی کل به سطح آمادگی رزمی و هوشیاری نیروهای نظامی این کشور در انجام وظایف خود ابراز افتخار کرده و بر آمادگی آن‌ها برای دفاع از کشور تاکید می‌کند.
+نیروی دفاع بحرین همچنین از شهروندان و ساکنان این کشور خواست از نزدیک شدن یا دست زدن به هرگونه اجسام ناشناس یا مشکوک که ممکن است بقایای حملات ایران باشد، خودداری کنند.
+در این بیانیه آمده است نیروهای واحد مهندسی میدان سلطنتی بحرین در آمادگی کامل قرار دارند تا برای حفظ امنیت عمومی، این اجسام را به‌صورت ایمن بررسی و خنثی کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240453
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240453_1778929981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمد مخبر، مشاور رهبر جمهوری اسلامی، روز شنبه با انتشار متنی در شبکه اجتماعی ایکس با استفاده از هشتگ کویت و امارات نوشت: «ایران سال‌ها به چشم دوست و برادر به آنها نگاه کرد، ولی آنها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و ایران قرار دادند.»
+
+مخبر در این پیام با اشاره به حضور نیروهای آمریکایی در کشورهای منطقه، تهدید کرد: «پاسخ جمهوری اسلامی به سنگرهای استیجاری سنتکام در جنگ اخیر تمام‌عیار نبود، اما قطعا این خویشتن‌داری همیشگی نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240452
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240452_1778929982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان استرالیا روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی تجمع کرده و با حمل پرچم شیروخورشید ترانه‌های ملی را هم‌خوانی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240451
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240451_1778929985.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه معاریو به نقل از منابع آگاه گزارش داد که دولت دونالد ترامپ در روزهای اخیر آمادگی خود را برای دادن «چراغ سبز» به اقدام نظامی در صورت شکست نهایی تلاش‌های دیپلماتیک با جمهوری اسلامی نشان داده است.
+
+بر اساس این گزارش، با وجود این رویکرد، هنوز تصمیم نهایی برای آغاز عملیات نظامی اتخاذ نشده است.
+
+این منابع افزودند که «پنجره دیپلماتیک به سرعت در حال بسته شدن است» و روزهای آینده می‌تواند در تعیین مسیر تحولات سرنوشت‌ساز باشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240450
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240450_1778929986.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مخاطبان ایران اینترنشنال طی روزهای اخیر با ارسال پیام‌هایی درباره سلامت و جان نرگس محمدی، زندانی سیاسی، ابراز نگرانی کرده و از ایرانیان خواستند در خارج از کشور صدای او باشند. پیام مخاطبان با هوش مصنوعی بازخوانی شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240449
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240449_1778929988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور رهبر جمهوری اسلامی، با انتشار مطلبی در ایکس با هشتگ کویت و امارات نوشت: «ایران سال‌ها به چشم دوست و برادر به آنها نگاه کرد، ولی آنها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و ایران قرار دادند.»
+
+او تهدید کرد: «پاسخ جمهوری اسلامی به سنگرهای استیجاری سنتکام در جنگ اخیر تمام‌عیار نبود، اما قطعا این خویشتن‌داری همیشگی نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240448
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240448_1778929989.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امارات: خروج از اوپک تصمیمی راهبردی بود، نه سیاسی
+وزیر انرژی امارات متحده عربی اعلام کرد تصمیم ابوظبی برای خروج از اوپک و اوپک‌پلاس، اقدامی «حاکمیتی و راهبردی» بوده و انگیزه سیاسی نداشته است.
+به گزارش رویترز، مقام‌های اماراتی تاکید کردند این تصمیم بر پایه ارزیابی جامع از سیاست تولید نفت و ظرفیت‌های آینده این کشور اتخاذ شده و نشانه اختلاف با دیگر شرکای اوپک نیست.
+وزیر انرژی امارات گفت خروج از اوپک بخشی از راهبرد بلندمدت ابوظبی برای مدیریت مستقل‌تر ظرفیت‌های تولید انرژی و برنامه‌های توسعه آینده است و نباید به‌عنوان نشانه تنش سیاسی در داخل ائتلاف تولیدکنندگان نفت تفسیر شود.
+تصمیم امارات در شرایطی اعلام شده که بازار جهانی انرژی همچنان تحت تاثیر جنگ ایران، بحران تنگه هرمز و نوسان شدید قیمت نفت قرار دارد و برخی تحلیلگران، خروج ابوظبی را نشانه تغییرات ساختاری در آینده اوپک و بازار جهانی انرژی می‌دانند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240447
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240447_1778929990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی کل نیروی دفاعی بحرین اعلام کرد که تمامی سلاح‌ها و یگان‌های این نیرو در بالاترین سطح آمادگی و آماده‌باش دفاعی برای مواجه با حمله احتمالی جمهوری اسلامی قرار دارند. بحرین همچنین از شهروندانش خواست با توجه به پیامدهای این حمله، از نزدیک شدن یا دست زدن به هرگونه شیء ناشناس یا مشکوک که ممکن است از بقایای این حمله باشد، خودداری کنند.
+
+در بیانیه این فرماندهی آمده است که نیروهای آن از آمادگی رزمی پیشرفته و هوشیاری بالا در انجام وظیفه ملی خود برای دفاع از کشور و حفاظت از دستاوردهای آن برخوردارند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240446
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240446_1778929991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یخاب آران و بیدگل؛
+زیستگاه امن حیات‌وحش کویری ایران
+
+♦️گله‌ای از قوچ‌ و میش‌های وحشی در پناهگاه حیات وحش یخاب ابوزیدآباد در شهرستان آران و بیدگل، در قاب دوربین ثبت شد، منطقه‌ای بکر و کم‌نظیر در حاشیه کویر که یکی از زیستگاه‌های مهم حیات‌وحش ایران به شمار می‌رود.
+پناهگاه حیات وحش یخاب با برخورداری از تنوع زیستی ارزشمند، زیستگاه گونه‌هایی همچون قوچ و میش وحشی، جبیر، کاراکال و انواع پرندگان بومی کویر است و به‌دلیل شرایط خاص طبیعی و حفاظت محیط‌زیستی، از مناطق مهم حیات‌وحش در استان اصفهان محسوب می‌شود.
+ویدیویی از حضور و حرکت گله قوچ و میش‌های وحشی در این منطقه، جلوه‌ای از حیات طبیعی و زیبایی کم‌نظیر زیستگاه‌های کویری ایران را به نمایش گذاشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## t234t7yuhd4efthProject — post 87
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه فیلم خودارضایی جدید با چهره از یه خانوم چادری محجبه که وقتی لخت میشه شورتشو میکشه پایین کصش خیسه خیسه و مشخصه چقدر این زن حشریه😍🇮🇷😈
+
+فیلم سکسشم گذاشتیم خیلی خوبه
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 86
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_86_1778929994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه فیلم خودارضایی جدید با چهره از یه خانوم چادری محجبه که وقتی لخت میشه شورتشو میکشه پایین کصش خیسه خیسه و مشخصه چقدر این زن حشریه😍🇮🇷😈
+
+فیلم سکسشم گذاشتیم خیلی خوبه
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 85
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم بمب با چهره یا یه میلف خوشگل و ناز که اخرش که ابشو روش خالی میکنه میگه اوففف عزیزم چه ابی داری🇮🇷😁😍
+
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 84
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3 ویدیو بمبی وطنی که دو تاش از محجبه های خوشگله و یکیش،از تینیجر ۱۸ ساله هست که شیشه شیر رو ساک میزنه و فرو میکنه تو کص خوشگلش😁😍🇮🇷 vip
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 83
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_83_1778929996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3 ویدیو بمبی وطنی که دو تاش از محجبه های خوشگله و یکیش،از تینیجر ۱۸ ساله هست که شیشه شیر رو ساک میزنه و فرو میکنه تو کص خوشگلش😁😍🇮🇷 vip
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 82
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_82_1778929999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3 ویدیو بمبی وطنی که دو تاش از محجبه های خوشگله و یکیش،از تینیجر ۱۸ ساله هست که شیشه شیر رو ساک میزنه و فرو میکنه تو کص خوشگلش😁😍🇮🇷 vip
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 81
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلمای جدید بدن نمایی و سکس ساغر جون 😍😁😂 هرچقدر غذا میخوره میره تو کصو کون و ممه هاش 😂چربی خالصانه 😂😍 سینه هاش تو سوتین جا نمیشه😁پسره کیرو میکنه تو کصش و خوب ساغرو میکنه😍
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 80
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم خریداری شده یکی از بچه های چنل از دختر ۲۰ ساله شیرازی😁❤️😍 دختره یه لباس تنگ و چسبون پوشیده یواش یواش شروع میکنه به لخت شدن و بدن نمایی میکنه😍😁😂
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 79
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درسته قدیمیه ولی عجب کیفیتی داره فیلمشون❤️😍😁 دختره یه لباس توری سکسی پوشیده باسن و هیکلشم چرب و براق شده لباس توریشو پاره میکنه و میزاره لای کص خیس و براقش 😁😂😍ابشم میلیزه تو کص دختره.
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 78
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلمای جدید بدن نمایی و سکس ساغر جون 😍😁😂 هرچقدر غذا میخوره میره تو کصو کون و ممه هاش 😂چربی خالصانه 😂😍 سینه هاش تو سوتین جا نمیشه😁پسره کیرو میکنه تو کصش و خوب ساغرو میکنه😍
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 77
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_77_1778930002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گاییدن دختر خوش هیکل برنزه😍🇮🇷😁 لامصب عجب کص نابیه😋👍
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 76
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_76_1778930005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گاییدن دختر خوش هیکل برنزه😍🇮🇷😁 لامصب عجب کص نابیه😋👍
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 75
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_75_1778930008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم های اختصاصی بمب از کردن کون زن سفید و سکسیش😍😁🇮🇷 لنگاشو باز کرده شوهرش تف زده به سوراخ کونش و داره کونشو جر میده😍 از نزدیک از سوراخش فیلم میگیره خیلی گشاد شده😋💋👌vip
+
+
+@sosmast
+</div>
+
+## t234t7yuhd4efthProject — post 74
+
+<div align="center">
+  <a href="telegram/content/t234t7yuhd4efthProject_74_1778930010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم های اختصاصی بمب از کردن کون زن سفید و سکسیش😍😁🇮🇷 لنگاشو باز کرده شوهرش تف زده به سوراخ کونش و داره کونشو جر میده😍 از نزدیک از سوراخش فیلم میگیره خیلی گشاد شده😋💋👌vip
+
+
+@sosmast
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 13:31
 ---
 
